@@ -17,11 +17,6 @@ All of the aircraft is designed by the [url=http://www.nationstates.net/nation=u
 [img]https://i.imgur.com/PysjUrx.png[/img]
 
 [img]https://i.imgur.com/PysjUrx.png[/img]
-
-[img]https://i.imgur.com/PysjUrx.png[/img]
-
-[img]https://i.imgur.com/PysjUrx.png[/img]
-
 [b][size=130]Civilian Spacecraft[/size][/b]
 [hr]
 [box]
