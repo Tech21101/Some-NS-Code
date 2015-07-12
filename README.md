@@ -7,13 +7,21 @@ this is a test thing
 
 All of the aircraft is designed by the [url=http://www.nationstates.net/nation=united_asians_association_of_asians/detail=factbook/id=278536]Asia United Research Company[/url] and manufactured by the government.
 [img]https://i.imgur.com/PysjUrx.png[/img]
+
 [img]https://i.imgur.com/PysjUrx.png[/img]
+
 [img]https://i.imgur.com/PysjUrx.png[/img]
+
 [img]https://i.imgur.com/PysjUrx.png[/img]
+
 [img]https://i.imgur.com/PysjUrx.png[/img]
+
 [img]https://i.imgur.com/PysjUrx.png[/img]
+
 [img]https://i.imgur.com/PysjUrx.png[/img]
+
 [img]https://i.imgur.com/PysjUrx.png[/img]
+
 [b][size=130]Civilian Spacecraft[/size][/b]
 [hr]
 [box]
